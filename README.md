@@ -9,4 +9,4 @@ Interest: T.O.P, G-DRAGON, BIGBANG, Squid Game, All Of Us Are Dead, Daily Dose o
 
 
 
-(Other Korean please interact....;_; 언어 장벽이 너무 짜증나요)
+(Other Korean please interact....;_;)
